@@ -1,5 +1,5 @@
-### Hi there 👋
+### Hi there ૮₍ • ᴥ • ₎ა
 
-I'm **Jeehye**. I study _neuroscience_ 𖡎 and I shoot _35mm_ [◉°].
+I'm **Jeehye**. I study _neuroscience_ and I shoot _35mm_.
 
-Find out more about me on my [website](https://anjeehye.xyz/) 🐳🪼🐬
+Find out more about me on my [website](https://anjeehye.xyz/)! 🐳🪼🐬
